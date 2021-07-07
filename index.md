@@ -15,3 +15,5 @@
  our first art peice was posted by Cubrick and drawn by Ayumi credit to both of them<3 I love the drawing and hope to see more!
 ![animal crossing girl by alice](https://media.discordapp.net/attachments/862382443683250198/862396793912164442/Photo_on_7-7-21_at_11.15_AM.jpg)
 I drew this myself so i can't say much but all in all i like it. Go to discord to see more reactions!
+![genshin impact by alice](https://media.discordapp.net/attachments/862390669149470720/862448389416026112/Photo_on_7-7-21_at_2.40_PM.jpg)
+Yay genshin impact! I also drew this! just now acctually! I just started playing it its really fun but i cant complete the second quest. ):
