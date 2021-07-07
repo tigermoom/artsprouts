@@ -9,3 +9,6 @@
 * Join us on a discord labeled @artsprouts!
 * Submit your art via discord and have it posted on here on this website! You will get positive feedback or a helping hand!
 * Hope to see you soon<3
+* The link for the discord is here:https://discord.gg/TWVDG4E9
+* our first art peice was posted by Cubrick and drawn by Ayumi credit to both of them<3 I love the drawing and hope to see more!
+* ![anime ramen by ayumi] (https://cdn.discordapp.com/attachments/862382443683250198/862388033293910026/image0.jpg)
