@@ -11,5 +11,7 @@
 * Hope to see you soon<3
 * The link for the discord is here: [link to discord!](https://discord.gg/TWVDG4E9)
 
-* ![anime ramen by ayumi](https://cdn.discordapp.com/attachments/862382443683250198/862388033293910026/image0.jpg)
-* * our first art peice was posted by Cubrick and drawn by Ayumi credit to both of them<3 I love the drawing and hope to see more!
+![anime ramen by ayumi](https://cdn.discordapp.com/attachments/862382443683250198/862388033293910026/image0.jpg)
+ our first art peice was posted by Cubrick and drawn by Ayumi credit to both of them<3 I love the drawing and hope to see more!
+![animal crossing girl alice](https://discord.com/channels/862382443227119626/862382443683250198/862396794112704532)
+I drew this myself so i can't say much but all in all i like it. Go to discord to see more reactions!
