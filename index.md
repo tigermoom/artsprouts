@@ -1,6 +1,6 @@
 # artsprouts
 
-![Image of Yaktocat](https://octodex.github.com/images/yaktocat.png)
+![Ace of Wands](https://cdn.shopify.com/s/files/1/1325/0879/files/1-ace-of-wands-rider-waite-tarot_large.jpg)
 
 ## Hey everyone welcome to artsprouts!!
 * Post your art
