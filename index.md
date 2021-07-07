@@ -7,5 +7,5 @@
 
 * WELCOME TO THE SPROUTS COMMUNITY!!
 * Join us on a discord labeled @artsprouts!
-* Submit your art via discord and have it posted and commented on by us!!
+* Submit your art via discord and have it posted on here on this website! You will get positive feedback or a helping hand!
 * Hope to see you soon<3
