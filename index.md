@@ -17,5 +17,5 @@
 I drew this myself so i can't say much, but all in all i like it. Go to discord to see more reactions!
 ![genshin impact by alice](https://media.discordapp.net/attachments/862390669149470720/862448389416026112/Photo_on_7-7-21_at_2.40_PM.jpg)
 Yay genshin impact! I also drew this just now actually! I just started playing it its really fun but I can't complete the second quest ;-;
-![lulus scorpias malfoy](https://discord.com/channels/862382443227119626/862382443683250198/863143788763152394)
+![lulus scorpias malfoy](https://media.discordapp.net/attachments/862382443683250198/863143788489605170/IMG_20210709_124416.jpg)
 Everyone welcome the new scorpias malfoy! So perfect! so this is by Tacoo cat and I hope to see more from her!!
